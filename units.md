@@ -33,6 +33,10 @@
 
 7.2.4. Bungee jumping, Skydiving, Skiing, Diving, Free climbing
 
+Sports
+
+I enjoy go running by the mountains. I run once a week on saturdays. I only took part in a competition four years a go. I allways warm up before I start the exercise. Then I strech up for ten minutes. I think I have to train two days a week if I want to compete in a marathon. I am using a kind of sneakers. I used a pair of special socks last winter. The sock are like glove, I have to introduce the five fingers in their position. I never went running in a arena. I rather run by a countryside.
+
 #### Vocabulary ####
 
 7.2.5. Aerobics do gym, martial arts do court, swimming go pool, athletics do stadium, basketball play court, snowboarding go piste, golf play track, running go stadium, football play pitch, gymmnastics do gym
