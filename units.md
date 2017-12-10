@@ -33,6 +33,59 @@
 
 7.2.4. Bungee jumping, Skydiving, Skiing, Diving, Free climbing
 
+
+
+## Unit 8
+
+### Theory
+
+* I usually studied French  --- (is similar) ---> I used to study French (used to + verb)
+* We were used to doing them (be/get used to + -ing verb)
+* Sometimes/Often we would go out (past)
+
+### 8.1
+
+8.1.4
+  2 D, 3 C, 4 A, 5 B, 6 B
+  
+### 8.2
+  
+8.2.1 
+
+1-a, 2-c, 3-b
+  
+I'm used to living away from home > It is about the past. It was done.
+I'm getting used to living away from home > It is in a process. It is not finished.
+
+8.2.2 **Corpus spot**
+a ?
+b ?
+c ?
+d I takes a long time to get used to *doing* a new job
+e My grand mother was used to working very long hours when she was a girl
+f ?
+g When I was a child, I *used* to go the zoo with my parents
+
+8.2.4 
+a do
+b break
+c having
+d took
+e kept
+f tastes
+g spends
+
+8.2.5 
+a the angry neighbour
+b washing the floor
+c some work
+d the flu
+e the tennis team
+f not paying
+
+8.2.7
+SEPARATING, SOCIAL, HAPPYNESS ¿?, PREFERENCE, ABILITY, UNCONSCIOUSLY, BEHAVIOUR, REMARKING, 
+
 Sports
 
 I enjoy go running by the mountains. I run once a week on saturdays. I only took part in a competition four years a go. I allways warm up before I start the exercise. Then I strech up for ten minutes. I think I have to train two days a week if I want to compete in a marathon. I am using a kind of sneakers. I used a pair of special socks last winter. The sock are like glove, I have to introduce the five fingers in their position. I never went running in a arena. I rather run by a countryside.
